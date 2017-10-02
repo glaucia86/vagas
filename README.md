@@ -8,7 +8,8 @@ Níveis: Pleno e senior
 
 ## Local
 
-Escritório, Rio de Janeiro - Barra da Tijuca
+Escritório, Barra da Tijuca - Rio de Janeiro
+Sorocaba - São Paulo
 
 ## Benefícios
 
